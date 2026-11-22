@@ -1,6 +1,6 @@
 Master's students studying abroad in Macau
 
-Height: 181cm
+Height: 185cm
 
 Interests and hobbies: enjoy traveling, enjoy delicious food; Fitness, swimming, running
 
@@ -8,7 +8,7 @@ Virgo, with a gentle and patient personality, pays attention to details in work,
 
 澳门留学硕士研究生
 
-身高：181cm
+身高：185cm
 
 兴趣爱好：旅游，爱好美食；健身、游泳、跑步
 
