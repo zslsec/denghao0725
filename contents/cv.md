@@ -14,3 +14,6 @@ Virgo, with a gentle and patient personality, pays attention to details in work,
 
 土象处女座，性格温和有耐心，做事注重细节、习惯提前规划，对待事情严谨踏实；善于倾听，遇事理性，只是计划被打乱时容易纠结。
 
+<img width="1279" height="1706" alt="background" src="https://github.com/user-attachments/assets/981cbdea-dda1-4691-bcda-24d48b9ade2e" />
+个人照片
+
